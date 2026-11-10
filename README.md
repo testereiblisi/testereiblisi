@@ -1,5 +1,7 @@
 <img width="640" height="440" alt="Image" src="https://github.com/user-attachments/assets/79283415-de88-443b-8368-9e05873079d3" />
 
+please do not drag me into your personal dramas, people do make mistakes but i dont mind if theyre actively trying to be better and heal.
+
 <!--
 **testereiblisi/testereiblisi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
